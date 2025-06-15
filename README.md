@@ -1,1 +1,1 @@
-https://biswaspriti123.github.io/project/
+https://biswaspriti123.github.io/project
